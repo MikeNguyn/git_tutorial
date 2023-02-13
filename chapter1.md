@@ -11,5 +11,5 @@ Since she is very drunk she does not remember what happens next but awakes next 
 His eyeballs are gouged out by the melon baller in her hand.
 In a panic, Robin packs her headbag along with her passpart and car keys.
 On the way out she notices the dead man is wearing a familiar ring on his left hand.
-It is her late husband's wedding band. 
-She takes the rang and takes her Toyota corolla westwards.
+It is her late husband's wedding ring. 
+She takes the ring and takes her Toyota corolla westwards.
