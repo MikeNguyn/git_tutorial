@@ -1,11 +1,11 @@
 It was a chilly evening in Philadephia.
 Robin is seen flipping through channels in her one bedroom apartment.
-Next to her is a 12 rack of Budweiser and the peels of melons. 
-She hears a knock on the door. 
-Robin assumes its her annoying neighbor who is telling her to turn down the TV volume.
+Next to her is a 12 rack of Budweisers and the peels of melons. 
+She hears a knock on her door. 
+Robin assume its her annoying neighbor who is telling her to turn down the TV volume.
 Usually she ignores the knocks.
 However suddenly the door breaks down and a mysterious figure rushes in.
-Robin is shook, but she grabs the melon baller next to her and lunges forward at the shadows.
+Robin is shocked, but she grabs the melon baller next to her and lunges forward at the shadows.
 Since she is very drunk she does not remember what happens next but awakes next to a dead man. 
 His eyeballs are gouged out by the melon baller in her hand.
 In a panic, Robin packs her handbag along with her passport and car keys.
