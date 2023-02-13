@@ -1,6 +1,6 @@
 It was a chilly evening in Philadephia.
 Robin is seen flipping through channels in her one bedroom apartment.
-Next to her is a 12 rack of Budweiser and the peels of melons. 
+Next to her is a 11 rack of Budweiser and the peels of melons. 
 She hears a knock on the door. 
 Robin assumes its her annoying neighbor who is telling her to turn down the TV volume.
 Usually she ignores the knocks.
@@ -11,4 +11,4 @@ His eyeballs are gouged out by the melon baller in her hand.
 In a panic, Robin packs her handbag along with her passport and car keys.
 On the way out she notices the dead man is wearing a familiar ring on his left hand.
 It is her late husband's wedding band. 
-She takes the ring and takes her Toyota Avalon westwards.
+She takes the ring and takes her Toyota corolla westwards.
