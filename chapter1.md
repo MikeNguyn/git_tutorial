@@ -12,4 +12,11 @@ His eyeballs are gouged out by the melon baller in her hand.
 In a panic, Robin packs her headbag along with her passpart and car keys.
 On the way out she notices the dead man is wearing a familiar ring on his left hand.
 It is her late husband's wedding band called the beatles.
+She takes the ring and takes her Toyota corolla westwards.
+<<<<<<< HEAD
+It is her late husband's wedding band called the beatles.
 She takes the rang and takes her Toyota corolla westwards.
+=======
+It is her late husband's wedding ring. 
+She takes the ring and takes her Toyota corolla westwards.
+>>>>>>> a687a0065db71bde3bd74620b6331dc87a491eb5
