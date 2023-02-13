@@ -4,11 +4,11 @@ The house was occupied by an old man that was chewing tobacco and his wife who w
 "hello?" the Cutting Widow asked the startled pair, "could u help me?"
 "WTF!" the farmers screamed.
 The wife acted fast, throwing her blueberry pie straight at the Cutting Widows' head.
-The husband was a bit slower, spitting out his tabacco and grabbing a nearby broom.
+The husband was a bit slower, spitting out his tobacco and grabbing a nearby broom.
 "What do you want?"
-Covered in blueberry filling, Widow was blunt, "I'm looking for the killers of my dead husband. Have you seen anyone weird pass through?"
+Covered in blueberry filling, Widow was blunt, "I'm looking for the killers of my dead husband. Have you seen anyone wack pass through?"
 "No.", said the wife.
 "Try England" said the husband.
 "Some people just won't help anybody" Widow thought to herself. 
 She floated out of the house and back down to the road.
-"Maybe i should try England."
+"Maybe I should try England."
