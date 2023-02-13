@@ -1,3 +1,4 @@
 Chapter 3: Chopping Chives
 
 Clark was chopping chives with his chihuahua, Charlie, on a Chuesday in Cambridge. Suddenly, he saw a shadow of a large figure, and swiftly turned around to find what was in fact a very small figure. A woman standing barely 3 feet tall stood there in a cloak. She looked at him, smiled, and said, "You're gonna die today." Immediately after saying this, she disappeared. Clark was freaked out, and ran into the house to call his wife. However, as soon as he slammed the back door behind him, a piece of the metal frame broke off, flying through the air, and slicing his radial artery. As his body collapsed and blood began to spew out of him, Charlie ran over to see what the commotion was. He was discovered that night by his wife, who found Charlie there lapping up his blood. 
+MERGE CONFLICT!!!!!!!
