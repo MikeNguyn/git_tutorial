@@ -6,4 +6,4 @@ Dana rushed to her husband, giving him a tight hug, so tight that it might kill 
 "It's time to go home, Charles", Dana said
 "I don't think so my dear", Charles mumbled, while Dana stood still. 
 "You see, Matt and I, we are married now", he told her, while helping Matt stand up.
-Not letting her husband respond anymore, she killed them both, and leave the castle, tear filled
+Not letting her husband respond anymore, she killed them both, and leave the castle, tear filled with the smell of death
